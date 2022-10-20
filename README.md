@@ -16,7 +16,7 @@
 </h4>
 <h4><font size="2"><a href="https://www.instagram.com/xbrity2/?hl=id"><font color="red">FOLLOW INSTAGRAM</font>
 </h4>
-<h4><font size="2"><a href="">088245059338<font color="red">WhatsApp</font>          
+<h4><font size="2"><a href="">088245059338<font color="red"> WhatsApp</font>          
 </p>
 </p>
 <a href="https://trakteer.id/AUTOSAFE" target="_blank"><img id="wse-buttons-preview" src="https://cdn.trakteer.id/images/embed/trbtn-red-1.png" height="15" style="border:0px;height:25px;" alt="DONASI FOR ME :V"></a>
