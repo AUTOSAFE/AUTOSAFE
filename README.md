@@ -12,9 +12,9 @@
 <div>
 </p>
 </p>
-<h4><font size="2"><a href="https://www.youtube.com/channel/UCjMrE9VjuFw3KynyFBrBjAQ/videos"><font color="red">SUBSCRIBE</font>
+<h4><font size="2"><a href="https://www.youtube.com/channel/UCjMrE9VjuFw3KynyFBrBjAQ/videos"><font color="red">oh(8)</font>
 </h4>
-<h4><font size="2"><a href="https://www.instagram.com/xbrity2/?hl=id"><font color="red">FOLLOW INSTAGRAM</font>
+<h4><font size="2"><a href="https://www.instagram.com/xbrity2/?hl=id"><font color="red">oh(9)</font>
 </h4>
 <h4><font size="2"><a href="">https://wa.me088245059338<font color="red"> WhatsApp</font>          
 </p>
