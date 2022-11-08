@@ -8,13 +8,13 @@
 <br>
 </p>
 <div>
-<img src="https://64.media.tumblr.com/e1f1c97123ae217eb731500e502e0083/tumblr_n9dxcikmIU1qc9zfzo7_r1_250.gif" align="right">
+<img src="https://telegra.ph/file/cc1180d73cd940e3d7612.jpg" align="right">
 <div>
 </p>
 </p>
-<h4><font size="2"><a href="https://www.youtube.com/channel/UCjMrE9VjuFw3KynyFBrBjAQ/videos"><font color="red">oh(8)</font>
+<h4><font size="2"><a href="https://www.youtube.com/channel/UCjMrE9VjuFw3KynyFBrBjAQ/videos"><font color="red">YouTube</font>
 </h4>
-<h4><font size="2"><a href="https://www.instagram.com/xbrity2/?hl=id"><font color="red">oh(9)</font>
+<h4><font size="2"><a href="https://www.instagram.com/xbrity2/?hl=id"><font color="red">Instagram</font>
 </h4>
 <h4><font size="2"><a href="">https://wa.me088245059338<font color="red"> WhatsApp</font>          
 </p>
